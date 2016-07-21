@@ -1,2 +1,2 @@
 # Sam-World
-Data Science enthusiast
+Data Science enthusiast and a passionate individual!
